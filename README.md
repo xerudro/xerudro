@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xerudro
+- 👋 Hi, I’m Romeo Alexandru Neacsu
 - 👀 I’m interested in ... Computers, webdesign and music production
 - 🌱 I’m currently learning ...everything sounds interesting from all this topics
 - 💞️ I’m looking to collaborate on ... any of this topics
